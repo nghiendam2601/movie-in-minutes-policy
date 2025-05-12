@@ -1,1 +1,1 @@
-# movie-in-minutes-policy
+# movie-in-minutes-privacy-policy
